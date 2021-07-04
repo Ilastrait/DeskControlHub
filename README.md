@@ -10,5 +10,7 @@ dayasingh6543@gmail.com
 
 Please refer to BUILD LOG for more info
 
+PS - Please open the image files after downloading only to view in full screen 
+
 Thanks
 
